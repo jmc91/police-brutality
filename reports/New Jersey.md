@@ -4,7 +4,7 @@
 
 Footage shows a woman tackled by multiple officers and thrown into bushes before an officer kneels on her to make an arrest. Another protestor is arrested in the background.
 
-As reporter is backing away, police yell at him to go him.
+As reporter is backing away, police yell at him to go him. 
 
 Another officer is heard saying, "Fuck him," before arresting the reporter.
 
