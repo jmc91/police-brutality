@@ -16,17 +16,5 @@ id: nj-asburypark-1
 
 * https://www.northjersey.com/story/news/local/how-we-live/2020/06/01/app-reporter-apparently-arrested-asbury-park-george-floyd-protest/5314750002/
 * https://twitter.com/greg_doucette/status/1270480487249776641
-## Newark\n### Drunk Pigs Strike Again | July 1st
-
-dude is driving drunk and we should be so thankful that his peers treated him by the book
-
-tags: property-destruction, badge-cover
-
-id: nj-newark-1
-
-**Links**
-
-* www.fuckyou.gov
-* www.whothefuqcares.net
 
 
