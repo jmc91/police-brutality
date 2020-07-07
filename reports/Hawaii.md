@@ -42,6 +42,22 @@ id: hi-aapesville-3
 * www.whothefuqcares.net
 
 
+## Waikiki
+
+### Mic Check | July 1st
+
+one 2 one 2
+
+tags: property-destruction, badge-cover
+
+id: hi-waikiki-1
+
+**Links**
+
+* www.fuckyou.gov
+* www.whothefuqcares.net
+
+
 ## Maui
 
 ### Mic Check | July 1st
