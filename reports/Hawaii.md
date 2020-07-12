@@ -100,6 +100,20 @@ id: hi-waikiki-4
 * www.whothefuqcares.net
 
 
+### Mic Check | July 1st
+
+one 2 one 2
+
+tags: property-destruction, badge-cover
+
+id: hi-waikiki-5
+
+**Links**
+
+* www.fuckyou.gov
+* www.whothefuqcares.net
+
+
 ## Maui
 
 ### Mic Check | July 1st
