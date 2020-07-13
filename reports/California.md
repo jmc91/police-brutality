@@ -48,36 +48,6 @@ id: ca-costamesa-1
 * https://old.reddit.com/r/orangecounty/comments/gvn42k/oc_sheriff_deputy_forgoing_his_name_badge_to_wear/
 
 
-### Sweet Title | (believed to be) July 7th
-
-Bad badddd
-
-tags: p-spray, shields
-
-id: ca-costamesa-1
-
-**Links**
-
-* link.gov
-* link.org
-* electionsarerigged.gov
-
-
-### Sweet Title | (believed to be) July 7th
-
-Bad badddd
-
-tags: p-spray, shields
-
-id: ca-costamesa-2
-
-**Links**
-
-* link.gov
-* link.org
-* electionsarerigged.gov
-
-
 ## Hollywood
 
 ### Law enforcement arrest people walking, you can hear on the radio “You should not be driving past anybody, stop and take somebody into custody”. | June 1st
